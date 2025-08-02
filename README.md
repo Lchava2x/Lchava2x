@@ -8,7 +8,7 @@
 - 🧠 Currently learning **Portuguese** and exploring **cloud technologies** (Azure, AWS basics).
 - 🎯 Passionate about solving problems, automating tasks, and improving user experience.
 - 📫 Reach me at: **pablo1n3@gmail.com**
-- 🔗 [LinkedIn Profile](www.linkedin.com/in/luis-chavarria-morales-ba2405169)
+- 🔗 [LinkedIn Profile](https://www.linkedin.com/public-profile/settings)
 
 ---
 
